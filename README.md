@@ -31,10 +31,14 @@ The second day of our induction began on a spiritual note with the **recitation 
 
 After that, we had a thought-provoking session by **Dr. Priya Darshani**, PhD in ECE, on *Universal Human Values*. She spoke about how the **real goal in life is happiness**, not just material success. Her session made us realise how we’re often chasing physical comforts, while true joy lies in maintaining harmony with ourselves and others.
 
+![Lecture by Priya Darshani Ma'am](Images/FB_IMG_1754409746399.jpg)
+
 Next, **Dr. Arvind Dhingra**, Director-STEP and Incharge-TAC, gave us an insightful presentation on the different **clubs and societies** in college. To make the session more interactive, he invited students on stage for some **fun ice-breaker activities**, which really helped us connect with our classmates.
 
 Then, we had a **lunch break** for an hour.
 
 In the second half, we appeared for **proficiency tests** in **English and Maths**, each lasting one hour. These were conducted by our seniors and gave us a sense of where we currently stand in these subjects.And with that, the day came to an end — filled with learning, reflection, and bonding.
+
+![Proficiency Test](Images/FB_IMG_1754410832980.jpg)
 
 This day reminded us that college life is not just about academics. It’s equally about **personal growth, emotional well-being**, and forming meaningful connections with others. From **spiritual grounding to intellectual engagement**, Day 2 gave us a glimpse of the balanced journey ahead.
