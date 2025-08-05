@@ -1,7 +1,6 @@
 # Induction Programme
-## Gurpreet Kaur ECA
-# Day 1: A Memorable Beginning 
-## 30 July 2025
+### Gurpreet Kaur ECA
+## Day 1: 30 July 2025
 My college journey at GNDEC Ludhiana began with a peaceful and spiritual experience. The day started with a programme at the **Gurdwara Sahib (8:30 AM – 9:30 AM)**, where we attended the **recitation of Japji Sahib, followed by Kirtan and Ardaas** for the success of our batch. It was a beautiful start to this new chapter of life.
 The Gurdwara Sahib at GNDEC is designed like a ship. Sitting inside felt like we were travelling together in the Jahaz of Waheguru — a peaceful and spiritual start to our day.
 
