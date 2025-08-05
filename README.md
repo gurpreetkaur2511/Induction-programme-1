@@ -43,16 +43,18 @@ In the second half, we appeared for **proficiency tests** in **English and Maths
 
 This day reminded us that college life is not just about academics. It’s equally about **personal growth, emotional well-being**, and forming meaningful connections with others. From **spiritual grounding to intellectual engagement**, Day 2 gave us a glimpse of the balanced journey ahead.
 
-## Day 3 : August 4, 2025
+## Day 3 : 4 August 2025
 
-The day began spiritually with the recitation of the Mool Mantra, guided by Dr. Harpreet Kaur, HoD of Applied Sciences. 
+We began our day with the spiritual recitation of the Mool Mantra in the presence of Dr. Harpreet Kaur, HoD of Applied Sciences.
 
-We then attended an informative session by our senior Taranpreet Kaur from the Causmic Club, where we learned about the club’s activities and how to join. This was followed by an exciting lecture on Motorsports by a mechanical senior, highlighting the engineering behind racing.
+The first session introduced us to GitHub, where we were guided on how to create a repository and upload our daily reports. It was our first exposure to version control and technical documentation.
 
-Next, Dr. Priya Darshani continued her session on Universal Human Values, focusing on balancing relationships, physical needs, and right understanding. The session was highly interactive and insightful.
+Next, our senior Taranpreet Kaur from the Causmic Club gave a detailed talk about the club’s activities, Instagram presence, and how to become a member. This was followed by a fascinating session on Motorsports by a mechanical senior, who explained the role of engineering in racing.
 
-After a lunch break, Prof. Aastik Sharma conducted an engaging English class encouraging students to speak confidently in English and write a letter describing their first day at college.
+Dr. Priya Darshani then delivered an interactive lecture on Universal Human Values, where she focused on how to maintain a balance between relationships, physical facilities, and right understanding. She also addressed questions from students and shared tips on overcoming indulgence and depression.
 
-The day ended with a Peer-to-Peer (P2P) C++ lecture by our seniors, where we ran our first “Hello World” program and understood variables. It was a motivating and hands-on start to our programming journey.
+After lunch, Prof. Aastik Sharma took an English class where he encouraged everyone to introduce themselves and write a letter describing their first day of college. He motivated us to shed the fear of speaking English.
 
-**Overall, Day 3 was full of learning, interaction, and inspiration.**
+The day concluded with a Peer-to-Peer (P2P) session by our seniors who introduced us to basic C++ programming. We successfully ran our first "Hello World" program and learned about variables.
+
+**Overall, Day 3 was enriching — full of spiritual energy, practical knowledge, and new beginnings.**
