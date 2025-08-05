@@ -42,3 +42,17 @@ In the second half, we appeared for **proficiency tests** in **English and Maths
 ![Proficiency Test](Images/FB_IMG_1754410832980.jpg)
 
 This day reminded us that college life is not just about academics. It’s equally about **personal growth, emotional well-being**, and forming meaningful connections with others. From **spiritual grounding to intellectual engagement**, Day 2 gave us a glimpse of the balanced journey ahead.
+
+## Day 3 : August 4, 2025
+
+The day began spiritually with the recitation of the Mool Mantra, guided by Dr. Harpreet Kaur, HoD of Applied Sciences. 
+
+We then attended an informative session by our senior Taranpreet Kaur from the Causmic Club, where we learned about the club’s activities and how to join. This was followed by an exciting lecture on Motorsports by a mechanical senior, highlighting the engineering behind racing.
+
+Next, Dr. Priya Darshani continued her session on Universal Human Values, focusing on balancing relationships, physical needs, and right understanding. The session was highly interactive and insightful.
+
+After a lunch break, Prof. Aastik Sharma conducted an engaging English class encouraging students to speak confidently in English and write a letter describing their first day at college.
+
+The day ended with a Peer-to-Peer (P2P) C++ lecture by our seniors, where we ran our first “Hello World” program and understood variables. It was a motivating and hands-on start to our programming journey.
+
+**Overall, Day 3 was full of learning, interaction, and inspiration.**
