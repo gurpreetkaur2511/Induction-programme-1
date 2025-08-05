@@ -51,6 +51,8 @@ The first session introduced us to GitHub, where we were guided on how to create
 
 Next, our senior Taranpreet Kaur from the Causmic Club gave a detailed talk about the club’s activities, Instagram presence, and how to become a member. This was followed by a fascinating session on Motorsports by a mechanical senior, who explained the role of engineering in racing.
 
+![Induction Day Image](Images/IMG_20250805_222902.jpg)
+
 Dr. Priya Darshani then delivered an interactive lecture on Universal Human Values, where she focused on how to maintain a balance between relationships, physical facilities, and right understanding. She also addressed questions from students and shared tips on overcoming indulgence and depression.
 
 After lunch, Prof. Aastik Sharma took an English class where he encouraged everyone to introduce themselves and write a letter describing their first day of college. He motivated us to shed the fear of speaking English.
