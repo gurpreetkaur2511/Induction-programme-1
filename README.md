@@ -60,3 +60,21 @@ After lunch, Prof. Aastik Sharma took an English class where he encouraged every
 The day concluded with a Peer-to-Peer (P2P) session by our seniors who introduced us to basic C++ programming. We successfully ran our first "Hello World" program and learned about variables.
 
 **Overall, Day 3 was enriching — full of spiritual energy, practical knowledge, and new beginnings.**
+
+## 🌟 Day 4 – *5 August 2025*  
+
+The fourth day of our induction program began with an insightful **Peer-to-Peer (P2P) lecture** at **1:30 PM**. This session was conducted by our senior **Abhinav**, a second-year student from the **CSE department**.
+
+### 🧑‍🤝‍🧑 Peer to Peer Session  
+Abhinav walked us through the vibrant side of college life by introducing us to the various **college societies, technical clubs, cultural groups, and activity cells**. He encouraged us to become a part of these communities to develop our personalities and grow beyond academics.  
+He warmly welcomed our queries and ensured we could reach out to our seniors anytime if we faced any doubts or confusion during our journey at GNDEC.
+
+### 🎤 Expert Talk by Mrs. Shaffy Makkar  
+The second session was an engaging **expert lecture** by **Mrs. Shaffy Makkar**, Vice Principal of **GHSKMS, Ludhiana**, held in the **auditorium**. The topic of discussion was:  
+> **"Millets – The Superfood of the Future"**
+
+She enlightened us on the **nutritional importance of millets**, highlighting how they are not only climate-resilient but also packed with essential nutrients. She emphasized how common grains like wheat and rice are categorized as **negative millets**, and how replacing them with **positive millets** can boost our health.  
+She also shared **various easy and delicious ways to cook millets**, ensuring both **maximum nutritional benefit and taste**.
+
+The day was both informative and interactive. From learning about **college life through our senior's lens** to understanding **the significance of mindful eating** through the expert lecture, Day 4 added immense value to our induction journey.  
+We walked away more informed, more connected, and definitely more curious!
