@@ -128,3 +128,55 @@ A fun and engaging session on **motorsports** in engineering by **Gautam**, one 
 
 Day 5 offered a perfect balance of **spirituality, discipline, health, academics, and emotional growth**.  
 Each session left us inspired to become better engineers and individuals.
+
+## ✨Day 6 - 7 August 2025
+
+### 🧪 Physics Lab Readiness – Prof. Komalpreet Kaur
+The day began with an informative lecture by **Prof. Komalpreet Kaur (Physics)**.  
+She explained the **basic concepts required before attending lab sessions**, focusing especially on:
+- ✅ Laser fundamentals  
+- ✅ Safety and precision in physics lab  
+- ✅ Importance of conceptual clarity  
+Her teaching style was clear, engaging, and easy to follow — a perfect start to the day!
+
+### ➗ Math Refresher – Prof. Sandeep Kaur Gill
+Next, we had a mathematics session by **Prof. Sandeep Kaur Gill**, who gave a strong revision of key Class 12 concepts:
+- 🔁 **Differential equations**  
+- 📉 **Differentiation**  
+- 🔍 **Partial vs. Ordinary Differentiation**
+This lecture helped bridge the gap between school maths and engineering applications.
+
+### 🎓 Exploring New Dimensions – Dr. Lakhvir Singh Khanna  
+**Dr. Lakhvir Singh Khanna**, Incharge – *CML (Centre for Multi-faceted Learning)*, conducted a session in the auditorium.
+
+He introduced us to:
+
+- 🌐 **NPTEL platform** – Online courses by IIT professors  
+- 🎓 Opportunity to earn a **B.Tech Honours degree** via NPTEL  
+- 🌟 Skills beyond academics – communication, ethics, personality
+The session was interactive, informative, and truly eye-opening!
+
+### ❤️ Social Responsibility & Fun – NSS Session by Dr. Jasvir Singh Grewal  
+The final session was led by **Dr. Jasvir Singh Grewal**, Incharge – *NSS (National Service Scheme)*.  
+He sensitized us about:
+- 🌍 Environmental care  
+- 🐾 How animals suffer due to human actions  
+- ❤️ Purpose of joining NSS and giving back to society
+The session included **multiple engaging activities**:
+
+### 🎶 Cultural Activities
+
+- 🎤 **Shabad Kirtan**: *"ਮੇਰੇ ਲਾਲਨ ਕੀ ਸੋਭਾ"*  
+- 🎵 **Classical Singing Performance**  
+
+### 🎲 Interactive Game: *Make Each Other Laugh*  
+A football was tossed into the audience. The chosen students were challenged to make each other laugh — but both resisted!  
+**Lesson**: It’s much harder to bring laughter than we think.
+
+### 🎭 Comedy Act by Seniors  
+A fun-filled act performed by our seniors brought energy, laughter, and joy to the entire hall.
+
+Day 6 blended **technical learning**, **career exploration**, and **cultural awareness** perfectly.  
+From lasers and differential equations to NPTEL, NSS, and laughter — every moment was valuable.
+
+Learning with purpose, and growing with joy — Day 6 was all about balance.
