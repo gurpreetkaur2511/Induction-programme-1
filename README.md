@@ -78,3 +78,72 @@ She also shared **various easy and delicious ways to cook millets**, ensuring bo
 
 The day was both informative and interactive. From learning about **college life through our senior's lens** to understanding **the significance of mindful eating** through the expert lecture, Day 4 added immense value to our induction journey.  
 We walked away more informed, more connected, and definitely more curious!
+
+## 🌟Day 5 - 6 August 2025
+
+---
+
+### 🕯️ Spiritual Start
+
+The day began with the peaceful **recitation of Mool Mantra**, led by  
+**Dr. Harpreet Kaur Grewal**, HOD of Applied Sciences.
+
+---
+
+### 🏛️ Orientation by Dean – Dr. Parminder Singh
+
+**Dr. Parminder Singh**, Dean of Students’ Welfare, introduced us to:
+
+- College norms & discipline  
+- Hostel life  
+- Clubs and societies  
+- Campus facilities
+
+> 📸  
+![Dean’s Lecture](Images/IMG_20250807_082105.jpg)
+
+---
+
+### 💪 Fitness for Engineers – Mr. Manpreet Singh
+
+A highly energetic session by **Mr. Manpreet Singh**, fitness trainer.  
+He emphasized:
+
+- Importance of physical fitness  
+- Benefits of a home-based diet  
+- Correct workout techniques  
+
+> 📸  
+![Fitness Session](Images/IMG_20250807_081842.jpg)
+
+---
+
+### 🎖️ NCC Insights – Tanmay Kaushal & Brig. P.S. Cheema
+
+- **Tanmay Kaushal**, senior, shared NCC training experiences.  
+- **Brigadier P.S. Cheema** spoke on Emotional Intelligence (EI) and the "5 Fs" of life:
+
+  > 🧠 **Fitness**, **Family & Friends**, **Finance**, **Faith**
+
+> 📸  
+![Brigadier’s Session](Images/IMG_20250807_082036.jpg)
+
+---
+
+### 📘 Physics Lecture – Prof. Amanjot Kaur
+
+She discussed:
+
+- Semester syllabus  
+- Exam pattern  
+- Class 12 topics used in Semester 1  
+
+---
+
+### 🏎️ Motorsports Talk – Gautam (Senior)
+
+A fun and engaging session on **motorsports** in engineering by **Gautam**, one of our seniors.
+
+
+Day 5 offered a perfect balance of **spirituality, discipline, health, academics, and emotional growth**.  
+Each session left us inspired to become better engineers and individuals.
