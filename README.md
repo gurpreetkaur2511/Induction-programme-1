@@ -156,12 +156,12 @@ He introduced us to:
 - 🌟 Skills beyond academics – communication, ethics, personality
 The session was interactive, informative, and truly eye-opening!
 
-### ❤️ Social Responsibility & Fun – NSS Session by Dr. Jasvir Singh Grewal  
+### Social Responsibility & Fun – NSS Session by Dr. Jasvir Singh Grewal  
 The final session was led by **Dr. Jasvir Singh Grewal**, Incharge – *NSS (National Service Scheme)*.  
 He sensitized us about:
 - 🌍 Environmental care  
 - 🐾 How animals suffer due to human actions  
-- ❤️ Purpose of joining NSS and giving back to society
+- 🌸Purpose of joining NSS and giving back to society
 The session included **multiple engaging activities**:
 
 ### 🎶 Cultural Activities
