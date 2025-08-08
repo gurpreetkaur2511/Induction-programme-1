@@ -180,3 +180,11 @@ Day 6 blended **technical learning**, **career exploration**, and **cultural awa
 From lasers and differential equations to NPTEL, NSS, and laughter — every moment was valuable.
 
 Learning with purpose, and growing with joy — Day 6 was all about balance.
+
+## 🌟 Day 7 – 8 August 2025
+
+The seventh day of our induction began at 11:00 AM with a Peer-to-Peer (P2P) session. This session was conducted by our seniors, who warmly welcomed us and introduced us to the various norms and practices of college life. They shared valuable insights and tips that would help us adapt better to the new environment and make the most of our academic journey.
+
+After a short break, we proceeded to visit the workshops as part of our practical orientation. I visited the Machine Workshop, where we were addressed by Er. Hakam Singh Sir. He gave us a clear explanation of the kind of practical work we would be doing in the workshop and also informed us about the marking scheme. With his vast teaching experience—having taught at the college since before 1988—he provided us with a meaningful understanding of the machines and tools we will be using. We also got the opportunity to tour the workshop and observe all the machines closely.
+
+Overall, Day 7 was a well-rounded experience. The P2P session helped us become familiar with the college culture through interaction with our seniors, while the workshop visit gave us an insightful glimpse into the practical aspects of our engineering education under the guidance of an experienced mentor.
