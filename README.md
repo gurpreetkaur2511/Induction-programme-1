@@ -188,3 +188,8 @@ The seventh day of our induction began at 11:00 AM with a Peer-to-Peer (P2P) ses
 After a short break, we proceeded to visit the workshops as part of our practical orientation. I visited the Machine Workshop, where we were addressed by Er. Hakam Singh Sir. He gave us a clear explanation of the kind of practical work we would be doing in the workshop and also informed us about the marking scheme. With his vast teaching experience—having taught at the college since before 1988—he provided us with a meaningful understanding of the machines and tools we will be using. We also got the opportunity to tour the workshop and observe all the machines closely.
 
 Overall, Day 7 was a well-rounded experience. The P2P session helped us become familiar with the college culture through interaction with our seniors, while the workshop visit gave us an insightful glimpse into the practical aspects of our engineering education under the guidance of an experienced mentor.
+
+## 🌟 Day 8 : 23 august 2025
+
+Day 8 of the induction program was a perfect mix of learning and fun. A professor from IIT delivered an insightful lecture on **Artificial Intelligence**, explaining its scope, applications, and the need to embrace AI for a future-ready career. Members of the **English Club** introduced their objectives, shared upcoming activities, and encouraged students to improve communication skills. The day concluded with engaging games like *Guess the Country from Emoji* 🌍 and *Guess the Movie Name* 🎬, making the session interactive and enjoyable.  
+
